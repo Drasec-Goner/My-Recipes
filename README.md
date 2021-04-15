@@ -1,1 +1,1 @@
-Simple Cake Recipe
+Cake is perfect for the beginner baker and is a great introduction to cooking for children. Here you will learn how to make a simple cake from "scratch". A cake straight from the heart.
